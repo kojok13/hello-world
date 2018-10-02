@@ -1,4 +1,5 @@
-# hello-world
 god please no
-# god no plesea
-no no no no no 
+# god no
+# na tym polegają zmiany w repo
+# no no no no no 
+# zapomnialem o hello world
